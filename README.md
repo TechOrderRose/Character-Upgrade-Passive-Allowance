@@ -42,6 +42,7 @@ you can automate a scheduled phone call to yourself,, if you believe it benefits
 
 To add further into effort,,
 Understsnd this upgrade is an ongoing endowing process.. It would be of apparent intrest for you to appear being in part that said to be.. Design a disclline that extends to reach within and hold true..
- 
 
 
+To add even further into effort,,
+it would be appropriate to view every encounter,, that is with every person who you interact with,, to be a part of the act your developing that plays out daily exhibition of your Upgrade.. 
